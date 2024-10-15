@@ -1,2 +1,0 @@
-# proposal
-propose the girl
